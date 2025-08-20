@@ -17,6 +17,7 @@ https://youtu.be/eqxWT1Kkpic?feature=shared
 
 ## 이런 질문들을 할 수 있어요!
 
+ex)
 1. 2026학년도 수시모집 변경 사항 있어
 2. 원서 접수 기간 언제야?
 3. AI융합학부 몇 명 뽑아?
